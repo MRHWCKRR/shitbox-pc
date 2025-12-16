@@ -1,0 +1,2 @@
+# shitbox-pc
+type shit
